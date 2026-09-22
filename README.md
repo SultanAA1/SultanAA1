@@ -59,5 +59,5 @@ I enjoy working on problems where software, business processes, and real-world o
 
 ### Connect
 
-- LinkedIn: [Sultan Abukhader](YOUR_LINKEDIN_URL)
+- LinkedIn: [Sultan Abukhader](https://www.linkedin.com/in/sultan-abukhader-414707294/)
 - Email: sultanabukhader63@gmail.com
